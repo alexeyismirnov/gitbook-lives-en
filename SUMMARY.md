@@ -136,3 +136,7 @@
 * [MARTYRS THYRSOS, LEUKIOS AND KALLINIKOS](martyrs-thyrsos-leukios-and-kallinikos.md)
 * [MYROPE OF CHIOS](myrope-of-chios.md)
 * [NILUS THE MYRRH STREAMER](nilus-the-myrrh-streamer.md)
+* [ORESTES THE PHYSICIAN](orestes-the-physician.md)
+* [PHILEMON AND ARCHIPPUS](philemon-and-archippus.md)
+* [PHOCAS OF SINOPE](phocas-of-sinope-1.md)
+* [PRESENTATION OF MARY](presentation-of-mary.md)
