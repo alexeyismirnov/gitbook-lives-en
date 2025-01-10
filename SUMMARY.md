@@ -147,3 +147,8 @@
 * [PROTECTION OF THE THEOTOKOS](protection-of-the-theotokos.md)
 * [PROTOMARTYR MIRAX OF EGYPT](protomartyr-mirax-of-egypt.md)
 * [QUADRATUS THE APOSTLE](quadratus-the-apostle.md)
+* [SABBAS THE SANCTIFIED](sabbas-the-sanctified.md)
+* [SABBAS OF ZVENIGOROD](sabbas-of-zvenigorod.md)
+* [SAINT MODESTOS OF JERUSALEM](saint-modestos-of-jerusalem.md)
+* [SAINT NICHOLAS](saint-nicholas.md)
+* [SAINT SPYRIDON THE WONDERWORKER](saint-spyridon-the-wonderworker.md)
