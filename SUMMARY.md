@@ -152,3 +152,7 @@
 * [SAINT MODESTOS OF JERUSALEM](saint-modestos-of-jerusalem.md)
 * [SAINT NICHOLAS](saint-nicholas.md)
 * [SAINT SPYRIDON THE WONDERWORKER](saint-spyridon-the-wonderworker.md)
+* [ST MENAS OF EGYPT](st-menas-of-egypt.md)
+* [SATURNINUS OF TOULOUSE](saturninus-of-toulouse.md)
+* [THE CONCEPTION OF THE THEOTOKOS](the-conception-of-the-theotokos.md)
+* [THEODOTUS OF ANCYRA](theodotus-of-ancyra-1.md)
