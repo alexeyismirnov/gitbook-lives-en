@@ -108,7 +108,6 @@
 * [VENERATION OF THE CROSS](veneration-of-the-cross.md)
 * [APOSTLE THOMAS](apostle-thomas.md)
 * [APOSTLE JAMES](apostle-james.md)
-* [ARSENIOS OF LATROS](arsenios-of-latros-1.md)
 * [BISHOP PROCLUS OF CONSTANTINOPLE](bishop-proclus-of-constantinople.md)
 * [BISHOP PETER OF ALEXANDRIA](bishop-peter-of-alexandria.md)
 * [DEMETRIUS OF THESSALONIKI](demetrius-of-thessaloniki.md)
