@@ -92,7 +92,7 @@
 * [SAINT MONICA](saint-monica.md)
 * [SECOND ECUMENICAL COUNCIL](second-ecumenical-council.md)
 * [SERAPHIM OF SAROV](seraphim-of-sarov.md)
-* [SAINTS INNA, ST PINNA, AND ST RIMMA](saints-inna-st-pinna-and-st-rimma.md)
+* [SAINTS INNA, PINNA, AND RIMMA](saints-inna-pinna-and-rimma.md)
 * [SAINTS COSMAS AND DAMIAN](saints-cosmas-and-damian.md)
 * [SAINTS THEODORE THE TYRO](saints-theodore-the-tyro.md)
 * [SAINT SIMEON](saint-simeon.md)
