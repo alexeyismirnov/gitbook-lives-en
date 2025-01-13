@@ -193,3 +193,8 @@
 * [MARTYR MICHAEL THE SABAITE](martyr-michael-the-sabaite.md)
 * [MARK OF ARETHUSA](mark-of-arethusa.md)
 * [MICHAEL OF SYNNADA](michael-of-synnada.md)
+* [NATIVITY OF JOHN](nativity-of-john.md)
+* [NICETAS THE CONFESSOR](nicetas-the-confessor.md)
+* [NIKETAS OF MEDIKION](niketas-of-medikion.md)
+* [NINE MARTYRS AT CYZICUS](nine-martyrs-at-cyzicus.md)
+* [ONUPHRIUS THE GREAT](onuphrius-the-great.md)
