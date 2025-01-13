@@ -167,3 +167,7 @@
 * [ATHENOGENES OF SEBASTIA](athenogenes-of-sebastia.md)
 * [ATHANASIUS THE GREAT](athanasius-the-great.md)
 * [AZADES AND 1000 MARTYRS OF PERSIA](azades-and-1000-martyrs-of-persia.md)
+* [BASSIANUS OF LODI](bassianus-of-lodi.md)
+* [CARPUS AND ALPHAEUS ](carpus-and-alphaeus.md)
+* [CHRYSANTHUS AND DARIA](chrysanthus-and-daria.md)
+* [CONSTANTINE AND HELEN](constantine-and-helen.md)
