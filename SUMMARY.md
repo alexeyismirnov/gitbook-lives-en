@@ -229,3 +229,8 @@
 * [THEODOSIA OF TYRE](theodosia-of-tyre.md)
 * [THEODOSIUS OF ANTIOCH](theodosius-of-antioch.md)
 * [THOMAS THE FOOL](thomas-the-fool.md)
+* [TIKHON OF AMATHUS](tikhon-of-amathus.md)
+* [TITUS THE WONDERWORKER](titus-the-wonderworker.md)
+* [TRYPHON OF CONSTANTINOPLE](tryphon-of-constantinople.md)
+* [TRANSFIGURATION OF ALL PEOPLE](transfiguration-of-all-people.md)
+* [XENIA OF SAINT PETERSBOURG](xenia-of-saint-petersbourg.md)
