@@ -224,3 +224,8 @@
 * [SUNDAY OF THE PARALYTIC](sunday-of-the-paralytic.md)
 * [SYNAXIS OF THE ARCHANGEL MICHAEL](synaxis-of-the-archangel-michael.md)
 * [SYNAXIS OF THE TWELVE APOSTLES](synaxis-of-the-twelve-apostles.md)
+* [THALLELAIOS, ALEXANDER AND ASTERIOS](thallelaios-alexander-and-asterios.md)
+* [THEODORE OF JORDAN](theodore-of-jordan.md)
+* [THEODOSIA OF TYRE](theodosia-of-tyre.md)
+* [THEODOSIUS OF ANTIOCH](theodosius-of-antioch.md)
+* [THOMAS THE FOOL](thomas-the-fool.md)
