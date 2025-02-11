@@ -14,5 +14,7 @@ It is no coincidence that the Church calls the saints who suffered as a result o
 
 The holy martyrs of the first centuries were persecuted by the pagans for confessing faith in the One God. Later, when ancient paganism faded into oblivion, Christians, especially preachers and missionaries, became martyrs for their confession of faith in the Lord Jesus Christ.
 
-In modern times, with the advent of Bolshevism to power in Russia in 1917, Christians were subjected to death for belonging to the Church. The Church is a community of believers. The Bolsheviks claimed to create a new atheist community of people on earth.Mysteriously, this apostolic succession of martyrdom reproduces the order of the words of the Creed, which proclaims faith in the One God, in the Lord Jesus, and then speaks of the truth of the One, Holy, Catholic and Apostolic Church.
+In modern times, with the advent of Bolshevism to power in Russia in 1917, Christians were subjected to death for belonging to the Church. The Church is a community of believers. The Bolsheviks claimed to create a new atheist community of people on earth.
+
+Mysteriously, this apostolic succession of martyrdom reproduces the order of the words of the Creed, which proclaims faith in the One God, in the Lord Jesus, and then speaks of the truth of the One, Holy, Catholic and Apostolic Church.
 
