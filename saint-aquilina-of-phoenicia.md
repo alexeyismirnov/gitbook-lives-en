@@ -1,7 +1,5 @@
 # SAINT AQUILINA OF PHOENICIA
 
-Augustine Sokolovski
-
 On June 22, the Church celebrates the memory of Saint Aquilina of Phoenicia. She lived in the city of Byblos, from which the word Bible itself comes. After her martyrdom, her relics were transferred to Constantinople.
 
 The name Aquilina translates as eagle. She is one of the holy children. Her life is extremely short. But the history of her centuries-long veneration in Constantinople is glorious and detailed.
