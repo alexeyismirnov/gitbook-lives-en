@@ -281,3 +281,6 @@
 * [WENCESLAUS OF BOHEMIA](wenceslaus-of-bohemia.md)
 * [ZOSIMAS OF CILICIA](zosimas-of-cilicia.md)
 * [ZOTIKUS THE KEEPER OF ORPHANS](zotikus-the-keeper-of-orphans.md)
+* [ALL SAINTS OF THE RUSSIAN CHURCH](all-saints-of-the-russian-church.md)
+* [APOSTLES BARTHOLOMEW AND BARNABAS](apostles-bartholomew-and-barnabas.md)
+* [MARTYR ZOSIMOS OF APOLLONIA](martyr-zosimos-of-apollonia.md)
