@@ -284,3 +284,6 @@
 * [ALL SAINTS OF THE RUSSIAN CHURCH](all-saints-of-the-russian-church.md)
 * [APOSTLES BARTHOLOMEW AND BARNABAS](apostles-bartholomew-and-barnabas.md)
 * [MARTYR ZOSIMOS OF APOLLONIA](martyr-zosimos-of-apollonia.md)
+* [SAINT JEROME](saint-jerome.md)
+* [MARTYR AQUILINA OF BIBLOS](martyr-aquilina-of-biblos.md)
+* [MARTYRS OF CHALCEDON](martyrs-of-chalcedon.md)
