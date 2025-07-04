@@ -291,3 +291,7 @@
 * [SAINT LUKE OF CRIMEA](saint-luke-of-crimea.md)
 * [SAINT ALEXIS THE METROPOLITAN](saint-alexis-the-metropolitan.md)
 * [EDICT OF MILAN](edict-of-milan.md)
+* [SAINT PETER OF ATHOS](saint-peter-of-athos.md)
+* [SATURDAY OF SOULS BEFORE PENTECOST](saturday-of-souls-before-pentecost.md)
+* [SAINT AQUILINA OF PHOENICIA](saint-aquilina-of-phoenicia.md)
+* [SIMEON OF JERUSALEM](simeon-of-jerusalem.md)
