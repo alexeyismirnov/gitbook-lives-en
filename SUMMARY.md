@@ -287,3 +287,7 @@
 * [SAINT JEROME](saint-jerome.md)
 * [MARTYR AQUILINA OF BIBLOS](martyr-aquilina-of-biblos.md)
 * [MARTYRS OF CHALCEDON](martyrs-of-chalcedon.md)
+* [HILARION THE NEW, ABBOT OF THE DALMATUS MONASTERY](hilarion-the-new-abbot-of-the-dalmatus-monastery.md)
+* [SAINT LUKE OF CRIMEA](saint-luke-of-crimea.md)
+* [SAINT ALEXIS THE METROPOLITAN](saint-alexis-the-metropolitan.md)
+* [EDICT OF MILAN](edict-of-milan.md)

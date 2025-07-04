@@ -1,0 +1,11 @@
+# HILARION THE NEW, ABBOT OF THE DALMATUS MONASTERY
+
+What should we do if two saints glorified by the Church have the same name, especially if they are both holy bishops, ascetics or martyrs, that is, belong to the same rank of holiness? In ancient times, the Orthodox Church usually called the older of them "Great", and the later one "Younger" or "New". Thus, Hilarion the Great (291-371) was the founder of monasticism in Gaza and lived in the fourth century. His life was recorded by the holy translator of the Bible, Jerome.
+
+But with Hilarion the New, we must immediately remember that there were two ascetics with this name. This is a rare exception. One of them lived in the eighth century, and the other in the ninth century. Both were confessors of the Orthodox faith and suffered greatly from the iconoclasts. Both were abbots of great monasteries. They were Hilarion of Pelekete and Hilarion of Dalmatus, respectively. Sometimes they are called by the name of these monasteries, but they are often confused, and the chronology is not followed even in reference books and dictionaries.
+
+Therefore, today, on the day of remembrance of Saint Hilarion the New of Dalmatus, it is important to remember the following: 1. He was the youngest of the three Hilarions. 2. He lived exactly 70 years, from 775 to 845. 3. He was the abbot of the Dalmatus Monastery, the main monastery in Constantinople. 4. For the veneration of icons, he lived in exile for almost thirty years, was tortured and beaten. The iconoclast Byzantine emperors, Leo V (813–820) and Theophilus (829–842) tried at any cost to obtain at least his tacit consent to iconoclasm. Having failed to achieve their goal, they took revenge with terrible malice.
+
+Ultimately, Hilarion outlived his persecutors, returned to the monastery, where he witnessed the Triumph of Orthodoxy (843) under Empress Theodora, but soon died due to the many sufferings he had endured. The memory of Hilarion the New, called Dalmatian, is celebrated by the Church on the day of his birth in eternity, June 19 (6), since which 1180 years have passed in 2025.
+
+By the way, it was in honor of this Saint Hilarion the New that our contemporary theologian, composer and spiritual writer Metropolitan Hilarion (Alfeyev) of the Russian Orthodox Church received his name in monastic tonsure.
