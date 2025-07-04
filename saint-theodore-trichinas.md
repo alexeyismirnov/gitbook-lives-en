@@ -1,0 +1,15 @@
+# SAINT THEODORE TRICHINAS
+
+On May 3, the Orthodox Church honors the memory of St. Theodore Trichina. Very little information has been preserved about the saint. It is assumed that he came from Constantinople and was a monk in Thrace. This was the name of a historical region in the East of the Balkans, in the European part of the Byzantine Empire.
+
+The saint led an extremely ascetic lifestyle. He had the gift of miracles, and demons were driven out through his prayers. Subsequently, a monastery arose on the site of his exploits, which received his name. Whether Theodore himself was the founder or abbot of this monastery is not known for certain. The monks venerated the saint and believed that they were his disciples and successors. Fragrant myrrh emanated from the tomb of the ascetic, which had the grace to heal diseases.
+
+The ancient service to St. Theodore has been preserved in the modern liturgical books. A careful reading of the texts of this liturgical service gives the impression that, like us, the authors had no information about his biography, but knew that he was of noble origin, had previously been rich, but left the world and devoted himself to extremely grueling feats. The very existence of the service testifies to the significant veneration of the saint, which inspired the hymnographers to write it.
+
+The Greek word "trichina" means a hair shirt, that is, an extremely coarse hair garment worn by ascetics of antiquity. The hair shirt was extremely irritating to the skin and caused constant torment. It was the hair shirt that Theodore himself preferred to any other human clothing. In Russian, his name is literally translated as "Theodore the Hairshirt Wearer".
+
+The ascetics ate extremely moderately, behaved meekly, calmly and measuredly. They led an extremely kind way of life. Harmless grazer animals and birds were for them a literal example of behavior. In order to bring to the surface the passion of irritation, which, according to the conviction of the ascetics, like a submarine, simply sank into the depths of the mind, heart and body, they wore extremely uncomfortable clothes in order to eradicate this evil and struggle day and night with anger, which is always truly dangerous, destructive to the human personality and capable of killing.
+
+The exact time of Theodore's life is not known. Apparently, he lived in the era of the initial spread of monasticism, but before the Muslim conquests and iconoclastic persecutions. The latter destroyed Christian monasteries, and the monks were subjected to plunder and even physical extermination. Perhaps, in modern terms, we should speak of “the genocide of the monastic population” in the Byzantine and Arab empires.
+
+But it was precisely these tragic circumstances that contributed to the fact that after the ascetics left this world, not only veneration and miracles remained, but also important biographical information. Thus, paradoxically, visible, unjust and cruel persecutions not only lead to spiritual purification but also save from historical oblivion.

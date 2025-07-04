@@ -1,0 +1,11 @@
+# MARTYR TRYPHAINA AT CYZICUS
+
+On February 13, the Church celebrates the memory of the holy martyr Tryphaena of Cyzicus. The saint was a contemporary of the Apostles. According to one version, she received her name in honor of Antonia Tryphaena (+55), the once glorious queen of Pontus and wife of the ruler of Thrace, who ended her days in retirement. According to another, it was she herself, the heroine of that time. Having witnessed the apostolic preaching and trial of the holy Thekla, Tryphaena came to faith. "Greet those workers in the Lord, Tryphaena and Tryphosa," wrote the Apostle Paul in the Epistle to the Romans (16:12).
+
+According to the life, the saint was accused of confessing the Christian faith. Since the pagans considered themselves believers, they tried to accuse Christians of atheism and hostility to generally accepted institutions. Tryphaena's noble silence in response to the accusation, combined with her open Christian confession, aroused pagan anger.
+
+She was judged and then tortured, as if deliberately following the example of those executions to which the enemies of God once subjected the righteous of the Old Testament, and later the Lord Himself and the Apostles. Like the three Babylonian youths, she was thrown into a fiery furnace, then given to the beasts to be torn apart, like the faithful Jews during the time of the Maccabees. Then she was tied to a tree and pierced with spears, as if imitating the Crucifixion. Finally, being unable to make her renounce her faith, the saint was taken down from the tree and thrown to a mad bull, thus completing the torture.
+
+In our time, when human calling, personal, family and public, is every often being questioned, and people in their inconstancy constantly strive for change and come to betrayals, Saint Tryphaena serves as an example of faith and fidelity to a decision once made. No torments could overcome the firmness of her intention to follow the Apostle in confession.
+
+The ancient Church considered perseverance in goodness and faith even to the last breath to be the height of grace. The Orthodox Church prays for this gift, under the words "for a peaceful and Christian end to our lives" even today at every liturgical sevice. With her heavenly intercession and earthly example, Saint Tryphaena inspires Christians to this great virtue.
