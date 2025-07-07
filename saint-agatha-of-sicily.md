@@ -1,6 +1,6 @@
 # SAINT AGATHA OF SICILY
 
-On February 19 (6), the Church celebrates the memory of the holy martyr Agatha of Sicily. Translated from Greek her name means “good”. In other words, the same name as God. “For only God is good,” says the Lord in the Gospel (Matthew 19:7).
+On February 18 (5), the Church celebrates the memory of the holy martyr Agatha of Sicily. Translated from Greek her name means “good”. In other words, the same name as God. “For only God is good,” says the Lord in the Gospel (Matthew 19:7).
 
 The saint was a virgin dedicated to God. She suffered for Christ during the persecution of the Roman emperor Decius (249–251). This was one of the first, if not the first, general systematic persecution in the history of Christianity.
 
