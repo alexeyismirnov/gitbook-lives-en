@@ -350,3 +350,4 @@
 * [SAINT GREGORY THE GREAT](saint-gregory-the-great.md)
 * [SAINT NIKON OF SICILY AND 199 DISCIPLES WITH HIM](saint-nikon-of-sicily-and-199-disciples-with-him.md)
 * [IGNATIUS OF ANTIOCH](ignatius-of-antioch.md)
+* [KURSK-ROOT ICON OF THE THEOTOKOS](kursk-root-icon-of-the-theotokos.md)
