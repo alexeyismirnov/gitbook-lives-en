@@ -31,3 +31,23 @@ Perhaps it is precisely in this “too strong”, great and amazing expectation 
 In the symbolism of the Event of the Assumption, as well as in the popular piety of the feast, much becomes obvious: Mary’s child’s soul is in the hands of the Lord; the body is already resurrected by Him to the Kingdom of God and the Father. Thus, in Mary and her Assumption, the Great Mystery appears; it is the Mystery of what awaits a person in Jesus Christ. This Mystery, as if not noticed by theology, lies in the fact that the Completion of the divine economy—in a different, human perspective—is visibly contained in the Mystery of the Dormition.
 
 This is a story about the mystery of life about those who left us and the mystery of life for all of us. The Lord resurrected the Blessed Virgin, already approaching His Second Coming. The Dormition means that after the last time of the Summer of the Lord, the Autumn of History begins. “Behold, I am coming quickly, and My reward is with Me, to reward everyone according to his deeds,” written in the Apocalypse (Rev. 22:12). After all, Jesus is returning, He has already crossed the threshold.
+
+The Dormition of the Theotokos concludes the church year. Unlike the Nativity of Mary, the Annunciation and the Meeting of the Lord, the Dormition Feast has no significance in the context of the economy of salvation. But, unlike them, it carries a colossal prophetic eschatological meaning. Jesus is the Future of Man, and the Dormition is an invitation to the Kingdom of the Father.
+
+1 "She is not dead, but asleep," Jesus says in the Gospel before raising Jairus's daughter from the dead (Matthew 9:24). These words may well briefly embody how the Orthodox Church understands the essence of the Dormition of the Theotokos.
+
+2 After the Resurrection, Ascension, and Pentecost, Mary lived for a long time. One tradition says this was a period of fifteen years. This may be the origin of the date of the celebration of the Assumption, the last month of the liturgical year, August 15.
+
+3 Tradition tells us that, like other disciples of the Lord, Mary performed apostolic service and preached the Gospel. The Athonite tradition is particularly well-known: according to it, Mary landed on the peninsula and prophesied that the Holy Mountain of Ascetics would rise there.
+
+4 "Even if we knew Christ according to the flesh, we no longer know him," writes the Apostle Paul in his Letter to the Corinthians (2 Corinthians 5:16). Attempts to reconstruct Mary's biography are intended to instruct on personal piety. But just as it is impossible to write a completely reliable historical or psychological biography of Jesus, the life of Mary also does not lend itself to such a reconstruction.
+
+5 Jesus' earthly life was very brief. He loved the planet and its inhabitants and blessed all who lived on it. He loved his native Palestine, Jerusalem, and the Temple. "When they drew near to Jerusalem, and the city was already in sight, Jesus wept over it," testifies the Gospel according to Luke (19:41). This extraordinary human kindness of Jesus later became the property of his disciples. That is why the Church calls itself "Apostolic" and that is why she is so beneficial.
+
+6 For the apostolic circle, Mary's death and her departure marked the end of the visible, living, bodily representation of Jesus' earthly love for this sinful world. And this is the sad side of the Dormition This world will never become the Kingdom of Heaven. As Milan Kundera called it: "Life is elsewhere." But the Church believes that after being resurrected, ascending into Heaven, and sending the Holy Spirit, Jesus continues to love this earth and to love us.
+
+7 Moreover, the Church, as the Community of Interpreters, believes that Jesus feels nostalgia for his earthly presence on earth. He truly misses the beauty of this world, biblical human communication, vineyards, fishing with the disciples, the colt and the donkey on which he one day entered the Holy City. The Assumption of Mary, who, according to the belief of the Church, immediately ceased to be dead, becoming dead, is a living and mysterious personification of the Lord Jesus's longing for our beautiful planet, for human communication, for the smiles and joy of each of us.
+
+8 The Church's faith affirms that at the Dormition, Jesus resurrected his Mother and took her bodily to heaven. "I will drink new wine with you in my Father's kingdom," Jesus tells his disciples in the Gospel (Matthew 26:29). The feast of the Dormition is a pledge of the fulfillment of this promise.
+
+<br>
