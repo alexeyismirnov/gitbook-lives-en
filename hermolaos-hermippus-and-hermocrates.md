@@ -1,4 +1,4 @@
-# HERMOLAOS, HERMIPPUS AND HERMOCRATES&#x20;
+# HERMOLAOS, HERMIPPUS AND HERMOCRATES
 
 On August 8, the Church honors the memory of the Holy Martyrs Hermolaos, Hermippus and Hermocrates. The saints suffered for Christ during the reign of the Roman emperor Maximian (285-305). According to the place of their suffering, they are called the martyrs of Nicomedia. Saint Hermolaos is called by the Church during the prayer for the healing of the sick and in the sacrament of unction.
 
@@ -31,3 +31,17 @@ According to life, when Panteleimon was tormented for his faith, Christ Himself 
 Just as grace is communication, so there is a mutual saving interdependence in the lives of the people of God and the saints. “God does not save us without us,” said the axiom of the ancient Christian apologists. Obviously, God does not save us without other people. He saves from eternal oblivion; He preserves the memory and our good name here on earth. Information about Hermolaos and his companions was preserved in the life of Panteleimon. But we also know about Panteleimon only because the Word of God through Hermolaos led him to Christ.
 
 There is one surprising detail in the description of Panteleimon's suffering. According to his life, when the saint was tormented for his faith, Christ Himself more than once appeared to him in the form of Hermolaos. In this semantic detail, not only the key importance that he had in the formation of Panteleimon. For the Christian community, this meant that the presbyter, who had previously “sheltered” from persecution, was great before God to such an extent that Christ Himself assumed his face. This was the apotheosis of the Kingdom, anticipating the Second Coming of Christ - the epiphany, when God, in Christ Jesus, by the Holy Spirit will be revealed in the saints.
+
+Through the preaching of Saints Hermolaus, Hermippus, and Hermocrates, Saint Panteleimon, a physician and scholar, was converted to the Christian faith and baptized. Church history testifies to the many blessings obtained through his intercession. Thanks to Panteleimon, Saint Hermolaus is also invoked as a healing saint in the Orthodox liturgy. What an astonishing interaction between the saints, in grace and holiness!
+
+Saint Hermolaus suffered for Christ during the Great Persecution of Diocletian at the beginning of the fourth century in Nicomedia. The martyrs Hermippus and Hermocrates suffered with him. Hermolaus was a priest, and the other two martyrs were clergy.
+
+They preached the word of God and did not cease to evangelize even during the persecution. Many martyrs suffered then. Perhaps we would never have learned about these saints if it were not for the great martyr Panteleimon, whom Hermolaus converted to the faith and baptized. This is said in the life.
+
+Saint Hermolaus used to look out of the window of his house and bless all passersby in his heart. One day he blessed Panteleimon in this way. The consequence of this innocent, spontaneous, small evangelical goodness was a great conversion.
+
+The names of Hermolaus, Hermippus and Hermocrates are derived from Hermes. This indicates that all three came to faith from paganism. It is even possible that before their conversion they served this deity but rejected their previous error. Thanks to such conversion, the testimony of their faith was all the more convincing.
+
+The name of Saint Hermolaus is invoked among the holy unmercenaries and miracle workers in the orthodox sacrament of unction and prayers for the healing of the sick. Saint Hermolaus himself was not a doctor, but it was he who pointed out to the physician Panteleimon that when medicine is powerless, Christ the Lord grants healing to everyone who earnestly asks.&#x20;
+
+The Apostolic Creed speaks of faith in the "Communion of Saints." The lives of Hermolaus, his companions and Saint Panteleimon are an eloquent amazing example of such communion.
