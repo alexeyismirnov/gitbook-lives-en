@@ -352,3 +352,4 @@
 * [IGNATIUS OF ANTIOCH](ignatius-of-antioch.md)
 * [KURSK-ROOT ICON OF THE THEOTOKOS](kursk-root-icon-of-the-theotokos.md)
 * [CYRIL AND METHODIUS](cyril-and-methodius.md)
+* [SAINT EUMENES OF CRETE](saint-eumenes-of-crete.md)
