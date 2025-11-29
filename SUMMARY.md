@@ -423,3 +423,8 @@
 * [VENERATION OF THE PRECIOUS CHAINS OF THE APOSTLE PETER](veneration-of-the-precious-chains-of-the-apostle-peter.md)
 * [SAINT HONORATUS OF ARLES](saint-honoratus-of-arles.md)
 * [SAINT PHOTIUS OF KIEV](saint-photius-of-kiev.md)
+* [ANTHONY THE GREAT](anthony-the-great.md)
+* [SAINT JOACHIM OF ALEXANDRIA](saint-joachim-of-alexandria.md)
+* [MARTYR ANDREW OF CRETE](martyr-andrew-of-crete.md)
+* [MARTYR PATROCLUS OF TROYES](martyr-patroclus-of-troyes.md)
+* [EVANGELIST LUKE](evangelist-luke.md)
