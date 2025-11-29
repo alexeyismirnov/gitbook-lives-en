@@ -1,0 +1,17 @@
+# APOLLINARIUS OF RAVENNA
+
+Saint Apollinaris of Ravenna is a great apostolic saint who performed a literal sea of miracles in his life. It is a great pity that tourists visiting this glorious ancient city do not know who, like a loving father, offers them hospitality and who literally childishly awaits their prayerful greeting.
+
+1 At the beginning of August, after the feast of Mary Magdalene, the Orthodox Church celebrates the memory of the great apostolic saint Apollinaris of Ravenna. Like Sergius of Narbonne, Saturninus of Toulouse, and Pancratius of Taormina, Apollinaris was a preacher, founder of a local church, and the first bishop of his city.
+
+2 All original information about Saint Apollinaris comes from liturgical texts and, in a very rare case, also from sacred art. The oldest mosaics depicting Apollinaris preserved in Ravenna are impressive. Books have been devoted to them alone; these masterpieces allow us to reconstruct the most important elements of biblical and ecclesiastical doctrine. This concerns above all eschatology and the role of holy men of God, the apostolic men, in the founding of local churches and their historical continuity.
+
+3 Like Sergius of Narbonne, Saturninus of Toulouse, Pancras of Taormina, and several others, Apollinaris was considered a disciple of Peter when the local churches they founded over the centuries desired that their founders and first bishops be direct disciples of the apostles. Theologically, this is certainly true. However, history and historiography do not always allow it. At the famous council held at Sardica, now Sofia in Bulgaria, in 343, a holy bishop of Ravenna named Severus was present and signed the documents. He was the eleventh bishop of Ravenna. Apollinaris was the first. The rules of chronology place Apollinaris's life in the mid-2nd century. This is already a very early period in the history of the Church.
+
+4 Apollinaris was an itinerant bishop. But he later settled in Ravenna. For 28 years—of course, between banishments, exiles, and simple missionary journeys—he remained in the service of his own Church in Ravenna, which he founded. Over time, it became so strong that it literally sought to free itself from the Roman Church. All this is the product of a much later era, even though it certainly testifies to the greatness of Apollinaris's personality. He performed a multitude of healings and miracles, comparable only to the apostolic era. In this sense, he was a disciple of the apostles and himself one of them.
+
+5 There is a kind of bifurcation, a split, both in the dating and in the death of Apollinaris. The sources refer to him as a martyr and a confessor. But perhaps he was not literally killed by the pagans but rather died because of several wounds and countless efforts for the faith.
+
+5 August 5th is his Dies Natalis, his birthday. This is what the first Christians called the days of the martyrs' deaths. It is important to keep in mind this paradox: the day of their death is their birthday. Therefore, they did not celebrate birthdays in the traditional sense. Similarly, the first centuries did not celebrate the birth of Christ.
+
+6 Faith is a quest for God. In memory of Saint Apollinaris, the Church, a community of believers on a pilgrimage to the mysteries and sacraments of Christ, asks the saint for intercession so that she can peacefully and in perseverance, without losing anyone, cross over the bridges of history to the City of God.
