@@ -1,0 +1,7 @@
+# FOUNDATION OF THE PSKOVO-PECHERSKY MONASTERY
+
+Each great ancient monastery is an amazing chronicle of salvation, in which there is inexhaustible edification and the visible hand of God in the history of people. The Pskov Pechersky Monastery was founded on the Dormition more than 550 years ago.
+
+1 On August 28, 1473, the Dormition Pskov-Caves Monastery was founded. The memory of the foundation of the monastery, celebrated on the feast of the Dormition of the Most Holy Theotokos, is “grace upon grace,” as the Evangelist John writes (cf. John 1:16), a small celebration of the foundation of the monastery within the framework of the great feast of the Dormition, like a miraculous book written by the Creator and Savior in world history, in the Church and in the souls of people who dedicated themselves to the Lord Jesus in asceticism.
+
+2 Throughout its history, the monastery was never closed. This is a rare example in the entire history of Christianity. The “forces of evil” have always found ways to oppose monasteries, each time under different pretexts. Thus, in Byzantium it was the iconoclasts, in Europe of the Modern Age – the ideology of the Enlightenment, and in our time – secularization. Therefore, the preservation of the Pechersk Monastery is a great gift of grace. In the second half of the 20th century, it became a genuine topos, a place of manifestation of the prophetic service of the elders.

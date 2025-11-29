@@ -418,3 +418,8 @@
 * [THEODORE OF ALEXANDRIA](theodore-of-alexandria.md)
 * [MARCEL OF APAMEA](marcel-of-apamea.md)
 * [MARTYRS PROTASIUS AND GERVASIUS](martyrs-protasius-and-gervasius.md)
+* [FOUNDATION OF THE PSKOVO-PECHERSKY MONASTERY](foundation-of-the-pskovo-pechersky-monastery.md)
+* [LUDMILA OF BOHEMIA](ludmila-of-bohemia.md)
+* [VENERATION OF THE PRECIOUS CHAINS OF THE APOSTLE PETER](veneration-of-the-precious-chains-of-the-apostle-peter.md)
+* [SAINT HONORATUS OF ARLES](saint-honoratus-of-arles.md)
+* [SAINT PHOTIUS OF KIEV](saint-photius-of-kiev.md)
