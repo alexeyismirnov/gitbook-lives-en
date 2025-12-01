@@ -374,7 +374,6 @@
 * [PATRIARCH MENAS OF CONSTANTINOPLE](patriarch-menas-of-constantinople.md)
 * [ADRIAN AND NATALIA](adrian-and-natalia.md)
 * [REPOSE OF SAINT SERGIUS, ABBOT OF RADONEZH](repose-of-saint-sergius-abbot-of-radonezh.md)
-* [HOLY MARTYR NATALIA](holy-martyr-natalia.md)
 * [SAINT SIMEON THE ANCIENT](saint-simeon-the-ancient.md)
 * [SYNAXIS OF THE MOST HOLY THEOTOKOS](synaxis-of-the-most-holy-theotokos.md)
 * [ABBA POEMEN THE GREAT](abba-poemen-the-great.md)
