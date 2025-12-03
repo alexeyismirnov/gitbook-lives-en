@@ -1,6 +1,6 @@
 # THEODOSIUS THE GREAT
 
-On February 24 (11), the Church celebrates the memory of St. Theodosius the Great (423-529), the founder of communal monasticism in Palestine. It is believed that before him, monasticism in the Holy Land was hermitic, idiorrhythmic or literally „following one“s own rules’, often serving charity or pilgrimage. Thus, St. Jerome translated the Bible, and Mary of Egypt labored in solitude, avoiding people. Theodosius laid the foundation for communal monastic life.
+On January 24 (11), the Church celebrates the memory of St. Theodosius the Great (423-529), the founder of communal monasticism in Palestine. It is believed that before him, monasticism in the Holy Land was hermitic, idiorrhythmic or literally „following one“s own rules’, often serving charity or pilgrimage. Thus, St. Jerome translated the Bible, and Mary of Egypt labored in solitude, avoiding people. Theodosius laid the foundation for communal monastic life.
 
 For us, the children of the Russian Church, the memory of St. Theodosius has special significance. The fact is that it was in honor of Theodosius that one of the two founders of Kiev-Pechersk monasticism was named at the turn of the first and second millennia, after Rus was baptized in 988.
 
