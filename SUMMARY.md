@@ -148,7 +148,6 @@
 * [QUADRATUS THE APOSTLE](quadratus-the-apostle.md)
 * [SABBAS THE SANCTIFIED](sabbas-the-sanctified.md)
 * [SABBAS OF ZVENIGOROD](sabbas-of-zvenigorod.md)
-* [SAINT MODESTOS OF JERUSALEM](saint-modestos-of-jerusalem.md)
 * [SAINT NICHOLAS](saint-nicholas.md)
 * [SAINT SPYRIDON THE WONDERWORKER](saint-spyridon-the-wonderworker.md)
 * [SAINT MENAS OF EGYPT](saint-menas-of-egypt.md)
