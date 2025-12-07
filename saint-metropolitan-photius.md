@@ -1,0 +1,19 @@
+# SAINT METROPOLITAN PHOTIUS
+
+1 On July 15, the Church celebrates the memory of Saint Photius of Kiev His feast day, according to the ancient Julian liturgical calendar, is easy to remember, as it marks exactly halfway through summer. Saint Photius was the last holy metropolitan of the Russian Church, send from Constantinople.
+
+2 Although he was Greek and, at least at the beginning of his pontificate, did not even speak Russian, his glorification as a saint took place over the centuries and, so to speak, very slowly. As is often the case with Russian saints, it was devoid of any apotheosis of holiness inherent in Greek and Byzantine canonizations.
+
+3 His pontificate was exceptionally long. He was ordained in 1408. Only two years later, in 1410, he arrived in Moscow, devastated by the Golden Horde. In 1433, after Photius's death, Bishop Gerasimus attempted to seize the see, but he was immediately embroiled in the internal conflicts of the Lithuanian state at that time. Captured by local leaders, he was burned at the stake in 1435. Such a terrible, tragic, senseless, and at the same time martyred death of this new metropolitan completely undermined the authority of those who deliberately acted in this way in the hope of instilling fear in their opponents.
+
+4 The next metropolitan, Isidore, signed the Union of Ferrara-Florence in 1439, was expelled from Muscovy, and ended his days in Rome as dean of the College of Cardinals. After this, the Russian Church proclaimed its independence. The Council of Bishops, independent of the "Greeks," elected bishop Jonah as Metropolitan. Photius must therefore be considered the last holy metropolitan of the Russian Church to be part of the Church of Constantinople. It is significant and biblically magnificent that this last hierarchical gift from Constantinople to the future Russia was revealed to be authentic in completely apocalyptic circumstances.
+
+5 It is unknown how Photius was perceived by his contemporaries. However, chronicles, documents, and his letters give the impression that he seemed to have emerged from the image of an impeccable saint bishop of the early Middle Ages. A monk by vocation, he obeyed the elder from his youth. He accepted his election as head of the Russian Church as an obedience and had no personal ambitions.
+
+6 Remaining officially Metropolitan of Kiev, due to the lack of a Moscow diocese at that time, he went to Kiev and, in 1420, restored the fragile unity of the metropolis. Let us recall that the Lithuanian and Polish rulers were already seeking to create another Metropolitanate of Kiev, independent of Moscow and Northern Russia.
+
+7 Photius brought order to ecclesiastical affairs, which had fallen into disrepair after the devastation of Moscow by nomads and the long absence of the city's Metropolitan. In 1425, during his pontificate, exactly a century had passed since the transfer of the Metropolitanate from Kiev to Moscow, which, let us recall, took place exactly one thousand years after the Ecumenical Council of Nicaea in 325. Incidentally, in 2025, the Council of Nicaea celebrated its 1700th anniversary. Photius died in 1431, the millennium of the Third Ecumenical Council of Ephesus (431). He was an educated Roman, as the Byzantines called themselves, and it is quite possible that he was aware of such coincidences.
+
+8 Finally, shortly before his death, he had a vision of an angel who not only predicted his imminent end but also indicated the time remaining for repentance. From the perspective of sainthood theology, this is certainly a privilege of saints.
+
+9 Historians still debate the exact date of Photius's official canonization. But it is highly likely that it is simply not necessary. After all, the Church, this Society of pilgrims on a lifelong journey to the heavenly Jerusalem, has long known that he is already there, in the Holy City of the Apocalypse, interceding for them, the pilgrims, and for the world in distress.
