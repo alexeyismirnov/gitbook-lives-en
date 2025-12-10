@@ -459,3 +459,4 @@
 * [MARON THE HERMITE IN SYRIA](maron-the-hermite-in-syria.md)
 * [EUSEBIUS THE SYRIAN](eusebius-the-syrian.md)
 * [MARTYR PAMPHILUS](martyr-pamphilus.md)
+* [GREAT MARTYR THEODOR STRATELATES](great-martyr-theodor-stratelates.md)
