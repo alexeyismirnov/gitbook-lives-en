@@ -492,5 +492,4 @@
 * [MARTYR THEODORET OF ANTIOCH](martyr-theodoret-of-antioch.md)
 * [THEODOR STRATELATES](theodor-stratelates.md)
 * [ANASTASIA THE PATRICIAN](anastasia-the-patrician.md)
-* [MARTYR HARALAMBOS OF MAGNESIA](martyr-haralambos-of-magnesia-1.md)
 * [MARTYR TERENCE](martyr-terence.md)
