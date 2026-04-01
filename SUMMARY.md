@@ -498,7 +498,6 @@
 * [SABINUS OF EGYPT](sabinus-of-egypt.md)
 * [FATHERS OF THE SIX ECUMENICAL COUNCILS](fathers-of-the-six-ecumenical-councils.md)
 * [MARON THE HERMITE](maron-the-hermite.md)
-* [EUSEBIUS THE SYRIAN](eusebius-the-syrian-1.md)
 * [SAINT ALEXANDER OF SIDE](saint-alexander-of-side.md)
 * [MARTYRS ANASTASIA AND BASILISSA](martyrs-anastasia-and-basilissa.md)
 * [LEONIDAS OF CORINTH AND HIS FELLOW MARTYRS](leonidas-of-corinth-and-his-fellow-martyrs.md)
