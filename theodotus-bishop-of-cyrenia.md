@@ -1,0 +1,11 @@
+# THEODOTUS BISHOP OF CYRENIA
+
+Theodotus was born in Galatia into a Christian family and received a good education. His calling to evangelize led him to Cyprus, where he preached the Christian faith with great success. Although Christianity was formally legalized throughout the Roman Empire, since Constantine's co-ruler Licinius (307–324) also signed the Edict of Milan in 313, Christians continued to be persecuted and killed for their faith in the Licinius' territory, often under false pretexts.
+
+Upon learning that news of the spread of the sermon had reached the ruler's ears, Theodotus himself appeared in court, publicly confessed himself a Christian, and delivered an apology for the Christian faith. For this, he was subjected to cruel torture, after which he was sent to prison. On the sixth day, he was summoned for questioning again and tortured once more. The first time, the confessor was hung from a tree and scraped with iron, but this time, like the Roman archdeacon Lawrence before him, he was roasted on an iron grate and then forced to march with nails driven into the soles of his feet.
+
+Since Theodotus, whose name translates as "gift of God," admitted that he got the gift of "unbeatable endurance" from God, which made people around him believe, he was arrested again. He remained in prison for quite a long time, until Constantine's victory over Licinius and the latter's overthrow granted the confessor his freedom. Two years later, he died in his city, apparently as a result of the torments he had endured.
+
+“You denounced the depths of false belief. With the Orthodox faith you wounded the delusion of idolatry. As a godly, whole burnt sacrifice, you refreshed the ends with your wonders! O holy hierarch Theodotus, our father, entreat Christ God to grant us great mercy!”, says the kontakion to the saint, which is sung in the third tone.
+
+Despite his peaceful death - he had endured torment - the liturgical calendar refers to Saint Theodotus not as a confessor but as a martyr. The saint passed away around 326, two years after Constantine's sole reign, which finally put an end to the pagan persecution of Christians in the Roman Empire. Saint Theodotus became the prophetic herald of this momentous change.

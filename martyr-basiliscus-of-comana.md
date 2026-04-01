@@ -1,0 +1,7 @@
+# MARTYR BASILISCUS OF COMANA
+
+The day before his death, Saint Basiliscus appeared to John Chrysostom in a vision and invited him to Paradise. It was September 13, 407, on the eve of the Feast of the Exaltation of the Holy Cross. The martyr himself had suffered his martyrdom 100 years earlier. At the martyrium, the martyr’s resting place, Chrysostom fell ill and began to die. But he apparently did not know until then that this was the Martyrion of Basiliscus, and not just a building.
+
+Basiliscus was a legionnaire in the Roman army and the nephew of the Holy Great Martyr Theodore Tyron, whose feast day is celebrated two weeks earlier. Theodor and Basiliscus were from the city of Amasya. Basiliscus’ two companions, Eutropius and Cleonicus, were executed on the spot for their faith in Christ, while Basiliscus’ tormentors took him to Comana, a four-day journey away, as if deliberately preparing him for a meeting, a hundred years later, with John Chrysostom.
+
+The name “Basiliscus” is strange. On its own, it refers to a mythical creature, a kind of snake or even a rooster with the body of a dragon, something rather menacing and malevolent. According to his hagiography, Theodore appeared to his nephew after the torture and healed him of his wounds. Apparently, the pagans gave the martyr this name because they could not explain his healings in any other way than as the intervention of some force hostile to them. Thus we learn that the saints—and with them, we Orthodox Christians—are a threat to the forces of evil. Saint Basiliscus, pray to God for us!
