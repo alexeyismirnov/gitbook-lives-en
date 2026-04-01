@@ -1,0 +1,15 @@
+# SAINT ALEXANDER THE UNSLEEPING
+
+Saint Alexander was born in the second half of the fourth century on one of the islands of the Aegean Sea. Having chosen a military career and becoming an official in Constantinople, he felt an irresistible urge to embrace the monastic life and withdrew to the monastery of a certain Abba Isaiah in the Syrian desert near Antioch. After some time, he came to the conclusion that this monastery did not fully correspond to the evangelical ideal of monasticism and withdrew to the desert to live in solitude.
+
+Driven by missionary zeal, he burned down a pagan temple in one of the villages, after which he entered into a dispute with the local ruler. He not only convinced the latter of the truth of the Christian faith but also persuaded him to become a monk. The locals wanted to make him their bishop, so Alexander fled across the Euphrates. There he founded a monastery, which eventually attracted four hundred monks from many nations and countries. Over the course of twenty years his asceticism, the saint developed a system of continuous worship performed by the monastery's brethren, divided into liturgical choirs.
+
+Saint Alexander's dream remained the Nubian desert, in modern-day Sudan. At one point, he appointed one of the monks as abbot in his place, but, together with part of the brotherhood, he withdrew in the completely opposite direction. Crossing the borders of the Roman Empire, he found himself in Persia.
+
+In Palmyra, the locals didn't like the monks because they thought they were lazy since they totally depended on donations. After a while, he ended up in Antioch, where he criticized the local bishop Theodotus (418–427) for not giving the monks a place to stay in the city. Forced to hide in the baths, Alexander gathered huge crowds of believers around him who came to listen to his sermons and were inspired by the ideal of complete non-possessiveness.
+
+The prefect of the city exiled him to Colchis, and from there he went to Constantinople, where he settled near the city church of St. Menas. Soon, many monks gathered around him. They literally left their monasteries to join him A church court was organized against the ascetic. As a result, a church trial was organized against him. Apparently, he was charged with a number of both ecclesiastical and secular crimes.
+
+He was imprisoned and then, according to the sentence, exiled back to Syria, while his monks were forced to return to their monasteries. After crossing the Bosphorus, in the vicinity of Chalcedon, he was again surrounded by his monastic followers, after which the local bishop, Eulalius, incited the crowd against him, who subjected him to all kinds of bullying.
+
+Finally, word of what was happening reached the imperial court, after which the persecution was stopped. Alexander himself retired to the Black Sea coast, where he founded another monastery, where he soon died. The life of Saint Alexander the Sleepless is an example of one of the most tragic and, from the perspective of a secular reader, unsuccessful monastic biographies.
