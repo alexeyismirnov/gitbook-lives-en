@@ -460,7 +460,6 @@
 * [EUSEBIUS THE SYRIAN](eusebius-the-syrian.md)
 * [MARTYR PAMPHILUS](martyr-pamphilus.md)
 * [GREAT MARTYR THEODOR STRATELATES](great-martyr-theodor-stratelates.md)
-* [MARTYR PAMPHILUS](martyr-pamphilus-1.md)
 * [PLATO OF ANCYRA](plato-of-ancyra.md)
 * [THEODORE TIRON](theodore-tiron.md)
 * [LEO THE GREAT](leo-the-great.md)
