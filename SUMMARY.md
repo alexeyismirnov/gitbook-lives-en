@@ -478,3 +478,8 @@
 * [FIRST AND SECOND FINDING OF THE HONORABLE HEAD](first-and-second-finding-of-the-honorable-head.md)
 * [HILARION THE NEW,  ABBOT OF PELEKETE](hilarion-the-new-abbot-of-pelekete.md)
 * [TARASIOS OF CONSTANTINOPLE](tarasios-of-constantinople.md)
+* [LAURENCE OF TUROV](laurence-of-turov-1.md)
+* [PORPHYRIUS OF GAZA](porphyrius-of-gaza.md)
+* [TRANSLATION OF THE RELICS OF SAINTS CYRUS AND JOHN](translation-of-the-relics-of-saints-cyrus-and-john.md)
+* [PROKOPIOS THE CONFESSOR OF DECAPOLIS](prokopios-the-confessor-of-decapolis.md)
+* [SAINT CYRIACUS OF PALESTINE](saint-cyriacus-of-palestine.md)
