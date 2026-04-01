@@ -494,7 +494,6 @@
 * [ANASTASIA THE PATRICIAN](anastasia-the-patrician.md)
 * [MARTYR TERENCE](martyr-terence.md)
 * [SAINT THEODORA](saint-theodora.md)
-* [MELETIUS OF ANTIOCH](meletius-of-antioch-1.md)
 * [ARTEMON OF LAODIKEIA](artemon-of-laodikeia.md)
 * [SABINUS OF EGYPT](sabinus-of-egypt.md)
 * [FATHERS OF THE SIX ECUMENICAL COUNCILS](fathers-of-the-six-ecumenical-councils.md)
