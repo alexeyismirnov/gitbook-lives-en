@@ -1,0 +1,7 @@
+# MARTYR TERENCE
+
+Unlike the famous Forty Martyrs of Sebaste, whose names are all known, only seven names of the Carthaginian saints have been preserved in the memory of the Church: Terentius, Pompeius, Africanus, Maximus, Zeno, Alexander, and Theodore.
+
+“Divide and conquer”—this wise political principle was transferred by pagans to the religious sphere in order to force the Carthaginian Christians to renounce their faith. Terentius and his three friends waited in prison while the other thirty-six saints were executed. This occurred during the persecution of Emperor Decius (249-251). "A chosen army of athletes from Africa contested nobly for the faith. They were of one mind and heart and of one accord in their struggles. Now they intercede that we all may be saved," is sung in the troparion to the saints. In turn, the kontakion to the saints says: "Let us celebrate the memory of Terence and his companions and draw near to receive healing. For with grace and power of the Spirit they heal the sicknesses of our souls".
+
+Forty martyrs, seven names, and thirty-three unknown sufferers—a remarkable semantic sequence that helps to preserve this memory, which is very important for the Ancient Church, as evidenced by the day of their commemoration, which is repeated many times throughout the year. It is known that at the end of the fourth century, during the reign of the holy emperor Theodosius the Great, who ruled from 379 to 395, the relics of Saint Terentius and his companions were transferred to Constantinople.
