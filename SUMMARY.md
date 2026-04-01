@@ -465,7 +465,6 @@
 * [LEO THE GREAT](leo-the-great.md)
 * [SAINT THOMAS OF CONSTANTINOPLE](saint-thomas-of-constantinople.md)
 * [BASIL OF ANCYRA](basil-of-ancyra.md)
-* [GREAT MARTYR ANASTASIA](great-martyr-anastasia-1.md)
 * [DOSITHEUS OF GAZA](dositheus-of-gaza.md)
 * [SAINT ISAAC OF THE DALMATIAN MONASTERY](saint-isaac-of-the-dalmatian-monastery.md)
 * [THE ENTRY OF THE MOST HOLY THEOTOKOS INTO THE TEMPLE](the-entry-of-the-most-holy-theotokos-into-the-temple.md)
