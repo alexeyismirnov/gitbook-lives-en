@@ -501,5 +501,4 @@
 * [SAINT ALEXANDER OF SIDE](saint-alexander-of-side.md)
 * [MARTYRS ANASTASIA AND BASILISSA](martyrs-anastasia-and-basilissa.md)
 * [LEONIDAS OF CORINTH AND HIS FELLOW MARTYRS](leonidas-of-corinth-and-his-fellow-martyrs.md)
-* [MARTYR PAMPHILUS](martyr-pamphilus-1.md)
 * [SAINTS OF FEBRUARY 29](saints-of-february-29.md)
