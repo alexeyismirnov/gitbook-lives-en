@@ -474,3 +474,7 @@
 * [LEAVETAKING OF THE ENTRY](leavetaking-of-the-entry.md)
 * [SAINT ALEXANDER THE UNSLEEPING](saint-alexander-the-unsleeping.md)
 * [SAINT MALCHUS THE CAPTIVE](saint-malchus-the-captive.md)
+* [FIRST AND SECOND FINDING](first-and-second-finding.md)
+* [FIRST AND SECOND FINDING OF THE HONORABLE HEAD](first-and-second-finding-of-the-honorable-head.md)
+* [HILARION THE NEW,  ABBOT OF PELEKETE](hilarion-the-new-abbot-of-pelekete.md)
+* [TARASIOS OF CONSTANTINOPLE](tarasios-of-constantinople.md)
