@@ -484,7 +484,6 @@
 * [SAINT CYRIACUS OF PALESTINE](saint-cyriacus-of-palestine.md)
 * [PROTERIUS OF ALEXANDRIA](proterius-of-alexandria.md)
 * [DOMNINA OF SYRIA](domnina-of-syria.md)
-* [MARTYR TRYPHON](martyr-tryphon-1.md)
 * [THEODOTUS BISHOP OF CYRENIA](theodotus-bishop-of-cyrenia.md)
 * [MARTYR BASILISCUS OF COMANA](martyr-basiliscus-of-comana.md)
 * [SAINT GERASIM OF JORDAN](saint-gerasim-of-jordan.md)
