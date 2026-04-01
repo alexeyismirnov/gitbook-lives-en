@@ -502,3 +502,6 @@
 * [MARTYRS ANASTASIA AND BASILISSA](martyrs-anastasia-and-basilissa.md)
 * [LEONIDAS OF CORINTH AND HIS FELLOW MARTYRS](leonidas-of-corinth-and-his-fellow-martyrs.md)
 * [SAINTS OF FEBRUARY 29](saints-of-february-29.md)
+* [AKAKIOS OF MELITENE](akakios-of-melitene.md)
+* [MARTYR MARINUS](martyr-marinus.md)
+* [MARTYR NIKEPHOROS OF ANTIOCH IN PISIDIA](martyr-nikephoros-of-antioch-in-pisidia-1.md)
