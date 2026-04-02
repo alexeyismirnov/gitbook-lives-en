@@ -1,5 +1,7 @@
 # EUTYCHIUS OF CONSTANTINOPLE
 
+Five years into his second patriarchate, Saint Eutychius departed to the Lord on April 19 (6), 582. Soon, healings, signs, and miracles began to occur from his tomb in the Church of the Holy Apostles. In communion with the great Patriarchs of the City—Gregory the Theologian, John Chrysostom, Nectarius, Proclus, Flavian, Callinicus, and Photius—Eutychius interceded for the Church in these last times.
+
 On April 19, the Church commemorates Saint Eutychius of Constantinople (512–582). Eutychius' biography was recorded by his disciple Eustathius, so information about his life is quite detailed. The saint was a patriarch from among the monastics during a very difficult time for the unity of the Church. He valued the unity of the Church above all else and tried in every way to avoid schisms. For his willingness to suffer for the truth even in times of peace, he was greatly loved by his flock.
 
 The saint was born around 512 in Phrygia, in the interior of Western Asia Minor. He studied in Constantinople. He then stayed in one of the monasteries of the city of Amasia, located in the Black Sea region of northern Asia Minor. Once, Eutychius accompanied the bishop of that region to Constantinople, after which he remained in the capital, where he lived for several years at the Church of the Mother of God near Strategion. At the age of about 30, Eutychius was ordained a priest and then returned to his monastery in Amasia, where he became abbot and was involved in construction work.

@@ -1,5 +1,7 @@
 # SAINT THEODORA
 
+On February 24 (11), the Church commemorates Saint Theodora, the righteous queen (+867), On February 24 (11), the Church commemorates the memory of Empress Theodora of Constantinople (+867), who restored the veneration of holy icons after two periods of severe Byzantine iconoclasm. Saint Theodora should be distinguished from other saints with the same name, such as the wife of Emperor Justinian the Great (482-565) or the holy ascetic Theodora, a disciple of Basil the New (who died on March 26 in 944 or 952), who had a vision of the mystery of the passage of the human soul through the aerial toll houses.&#x20;
+
 The first Sunday of Lent in our Church is called the Triumph of Orthodoxy. This day also has a more neutral name, “Sunday of Orthodoxy.” This day has a historical origin.
 
 The Byzantine Empress Theodora came to power in Constantinople and ended the second period of iconoclasm, which lasted from 814 to 843. Theodora is a saint of the Orthodox Church. Her relics rest in a large sarcophagus in the cathedral on the Greek island of Corfu. If any of us go on a pilgrimage to Corfu, don't forget to visit the cathedral where Saint Theodora rests. Icons depicting her sitting on a throne, holding the text of the dogma in her hands, are also sold nearby. You can always ask the priest of the cathedral for the blessing of this great Orthodox saint in the form of particles of cloth from her relics, as is the case with Saint Spyridon.

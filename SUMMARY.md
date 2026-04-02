@@ -496,7 +496,6 @@
 * [SAINT THEODORA](saint-theodora.md)
 * [ARTEMON OF LAODIKEIA](artemon-of-laodikeia.md)
 * [SABINUS OF EGYPT](sabinus-of-egypt.md)
-* [FATHERS OF THE SIX ECUMENICAL COUNCILS](fathers-of-the-six-ecumenical-councils.md)
 * [MARON THE HERMITE](maron-the-hermite.md)
 * [SAINT ALEXANDER OF SIDE](saint-alexander-of-side.md)
 * [MARTYRS ANASTASIA AND BASILISSA](martyrs-anastasia-and-basilissa.md)

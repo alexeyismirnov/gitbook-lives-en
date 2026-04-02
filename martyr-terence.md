@@ -1,5 +1,7 @@
 # MARTYR TERENCE
 
+The Forty Martyrs of Carthage, led by Saint Terence, should be distinguished from the holy martyr spouses Terentius and Neonila of Syria and their seven children, whose joint memory is celebrated in October-November, depending on the new or old calendar. The memory of the forty beheaded is celebrated on April 23.
+
 Unlike the famous Forty Martyrs of Sebaste, whose names are all known, only seven names of the Carthaginian saints have been preserved in the memory of the Church: Terentius, Pompeius, Africanus, Maximus, Zeno, Alexander, and Theodore.
 
 “Divide and conquer”—this wise political principle was transferred by pagans to the religious sphere in order to force the Carthaginian Christians to renounce their faith. Terentius and his three friends waited in prison while the other thirty-six saints were executed. This occurred during the persecution of Emperor Decius (249-251). "A chosen army of athletes from Africa contested nobly for the faith. They were of one mind and heart and of one accord in their struggles. Now they intercede that we all may be saved," is sung in the troparion to the saints. In turn, the kontakion to the saints says: "Let us celebrate the memory of Terence and his companions and draw near to receive healing. For with grace and power of the Spirit they heal the sicknesses of our souls".

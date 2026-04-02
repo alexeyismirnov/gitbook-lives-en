@@ -1,5 +1,7 @@
 # MARTYR THEODORET OF ANTIOCH
 
+The great teacher of the Early Church and church historian Theodoret of Cyrrhus (393–457) was his parents’ only child. For a long time, they had suffered from childlessness. Therefore, they named their only son—who was born through the prayers of Syrian desert fathers—“Gift of God,” or Theodoret in Greek. One of the heavenly patrons of this blessed bishop of one of the important sees of the Syrian Church was the holy martyr Theodoret of Antioch, the apostolic capital of all Syrian Christians.
+
 Very little biographical information about the holy martyr has survived. The highly authoritative ancient Church historian Sozomen (400–450) refers to him by the name Theodore, whereas one of the ancient martyrologies—that is, calendars listing the names of martyrs—calls him Theodulus. This should come as no surprise, since all three names—Theodore and Theodoret, meaning “Gift of God,” and Theodulus, meaning “Servant of God”—are similar in meaning or even synonymous.
 
 Theodoret was a priest at the great church of Antioch, built through the efforts of Emperor Constantine the Great and his son Constantius II, and known as the “Golden Church.” When their successor, Julian the Apostate (361–363), was in Antioch and decided to seize the church’s treasures, Theodoret, whose duties included caring for the temple vessels, prevented him from doing so. For this, he was subjected to numerous tortures; his ribs were burned with flaming lamps.
