@@ -1,6 +1,8 @@
 # Table of contents
 
 * [ABOUT THE AUTHOR](README.md)
+* [LEAVETAKING OF THE FEAST OF THE NATIVITY](leavetaking-of-the-feast-of-the-nativity.md)
+* [SAINT HYPATIUS OF GANGRA](saint-hypatius-of-gangra.md)
 * [GREATMARTYR ARTEMIUS](greatmartyr-artemius.md)
 * [CONSECRATION OF THE CHURCH OF ST GEORGE IN LYDDA](consecration-of-the-church-of-st-george-in-lydda.md)
 * [7 HOLY YOUTHS “SEVEN SLEEPERS” OF EPHESUS](7-holy-youths-seven-sleepers-of-ephesus.md)
