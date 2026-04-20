@@ -1,6 +1,7 @@
 # Table of contents
 
 * [ABOUT THE AUTHOR](README.md)
+* [MARY OF EGYPT](mary-of-egypt.md)
 * [LEAVETAKING OF THE FEAST OF THE NATIVITY](leavetaking-of-the-feast-of-the-nativity.md)
 * [SAINT HYPATIUS OF GANGRA](saint-hypatius-of-gangra.md)
 * [GREATMARTYR ARTEMIUS](greatmartyr-artemius.md)
@@ -72,7 +73,7 @@
 * [MARINUS AND ASTERIUS](marinus-and-asterius.md)
 * [MARTYR AUTONOMUS](martyr-autonomus.md)
 * [MARTYRS PHOTIUS AND ANICETUS](martyrs-photius-and-anicetus.md)
-* [MARY OF EGYPT](mary-of-egypt.md)
+* [MARY OF EGYPT](mary-of-egypt-1.md)
 * [METROPHANES OF BYZANTIUM](metrophanes-of-byzantium.md)
 * [MEMORY OF CORNELIUS THE CENTURION](memory-of-cornelius-the-centurion.md)
 * [NICHETAS OF CHALCEDON](nichetas-of-chalcedon.md)
