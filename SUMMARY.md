@@ -1,6 +1,7 @@
 # Table of contents
 
 * [ABOUT THE AUTHOR](README.md)
+* [EUSTATHIUS OF ANTIOCH](eustathius-of-antioch.md)
 * [MARY OF EGYPT](mary-of-egypt.md)
 * [LEAVETAKING OF THE FEAST OF THE NATIVITY](leavetaking-of-the-feast-of-the-nativity.md)
 * [SAINT HYPATIUS OF GANGRA](saint-hypatius-of-gangra.md)
